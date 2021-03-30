@@ -11,3 +11,5 @@
 5. CLIP6 <https://youtu.be/l--eTYtSjR8>
 
 6. CLIP7 <https://youtu.be/HM1u-lBaTeA> 
+
+7. CLIP8 <https://youtu.be/t9yPtMCTX98>
